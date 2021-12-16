@@ -1,1 +1,0 @@
-# rosalindrushyanto.github.io
